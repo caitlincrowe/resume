@@ -20,24 +20,24 @@ __Office Tools__ Google Apps, Microsoft Suite, Freshbooks
 
 ### General Office Manager & Sales | J&P Timepieces | 01/2016 - 04/2017
 
-__Responsibilities__ -- Inventory Management, Technical Documentation, Sales Documentation, Product Listing, Professional Correspondance, Travel Booking, Calendaring, Customer Relations
+__Responsibilities__ -- Inventory Management, Technical Documentation, Sales Documentation, Product Listing, Professional Correspondence, Travel Booking, Calendaring, Customer Relations
 
-J&P Timepieces is a high-end botique specializing in the resale of unqique luxury watches.
+J&P Timepieces is a high-end boutique specializing in the resale of unique luxury watches.
 
 Researched, procured and documented rare and historically significant timepieces, before listing on various marketplaces.  Coordinated and attended international trade shows.
 
 ### General Operations & Office Manager | Tivix, Inc. | 01/2014 - 06/2015
 
-__Responsibilities__ -- Business Insurance Administration, Employee Benefits Management & Administration, New Employee Orientation, Expense Processing, Severance Processing, Personnel Management, Career Path Development, Team Building Event Planning, Travel Booking, Satellite Office Cooridnation, Client Coordination, Vendor Management, Software Testing, Asset Purchasing & Tracking
+__Responsibilities__ -- Business Insurance Administration, Employee Benefits Management & Administration, New Employee Orientation, Expense Processing, Severance Processing, Personnel Management, Career Path Development, Team Building Event Planning, Travel Booking, Satellite Office Coordination, Client Coordination, Vendor Management, Software Testing, Asset Purchasing & Tracking
 
 Tivix is boutique software company that builds products for various massive enterprises and small digital shops.
 
-I initially joined Tivix as a part time assistant to the CEO to perform daily administration and office tasks as the company expanded.  I quickly developed this role into a full time position as Operations and Office Manager allowing the CEO to focus on corporate strategy and client aquisition.
+I initially joined Tivix as a part time assistant to the CEO to perform daily administration and office tasks as the company expanded.  I quickly developed this role into a full time position as Operations and Office Manager allowing the CEO to focus on corporate strategy and client acquisition.
 
 ### File Clerk & Front Desk Reception | Severson & Werson, LLP | 06/2012 - 12/2013
 
-__Responsibilities__ -- Maintain & Organize Case Files, Sort Correspondence, Index Discovery & Pleadings, Coordinate Off-Site Storage, General Reception Duties, Calendaring
+__Responsibilities__ -- Maintain & Organize Case Files, Sort Correspondence, Index Discovery & Pleadings, Coordinate Offsite Storage, General Reception Duties, Calendaring
 
 Severson & Werson is a California based Corporate Law Firm specializing in banking, business litigation, insurance and professional liability.
 
-Documented and indexed legal correspondense for 5 attorneys with an average of 80 to 100 active cases.
+Documented and indexed legal correspondence for 5 attorneys with an average of 80 to 100 active cases.
